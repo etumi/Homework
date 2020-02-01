@@ -1,2 +1,2 @@
 # Homework
-Aall homework assignments done by E
+All homework assignments done by Effiba Tumi
